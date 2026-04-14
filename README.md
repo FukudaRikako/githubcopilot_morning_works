@@ -1,4 +1,4 @@
-# 🌅 GitHub Copilot Morning Works
+# 🌞 GitHub Copilot Morning Works 🐣
 
 **「想像すると同時に、創造する時代へ。」**
 
